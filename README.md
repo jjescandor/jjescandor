@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jjescandor
+- 👀 I’m interested in living my best life and contributing to society
+- 🌱 I’m currently learning to be better than I was yesterday
+- 💞️ I’m interested in having a cup of coffe or tea with you
+- 📫 How to reach me (github, linkedin)
